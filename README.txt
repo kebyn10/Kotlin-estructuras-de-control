@@ -1,0 +1,14 @@
+Simple
+https://youtu.be/pImahKIC0xk
+Doble
+https://youtu.be/N2XggSXwCY0
+Anidado
+https://youtu.be/Z-vCmmixBeU
+When
+https://youtu.be/Rp6ZIw6MGlA
+DoWhile
+https://youtu.be/PFUBuwStPNE
+While
+https://youtu.be/m7LQBvuYiyg
+For
+https://youtu.be/IVNxca-7a58
